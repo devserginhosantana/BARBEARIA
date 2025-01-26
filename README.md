@@ -1,6 +1,6 @@
 ﻿# BARBEARIA
 
-O discipulado é uma jornada da graça com Jesus como nosso guia e companheiro.
+Onde o corte é sinônimo de personalidade.
 
 ## Links indicados
 
